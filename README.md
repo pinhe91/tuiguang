@@ -1,8 +1,8 @@
 # Visit English website
 
-### 1. THE FPOCH TIMES：https://www.theepochtimes.com/
+### THE FPOCH TIMES：https://www.theepochtimes.com/
 
-### 2. FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
+### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
 
 # 閱讀真相選文
 
