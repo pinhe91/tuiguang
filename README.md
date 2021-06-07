@@ -104,3 +104,5 @@
 原文 http://qikan.minghui.org/qikan.aspx?id=203081
 
 ## 明見神話網站：http://www.minrefer.com/
+
+## 欺世伪火：https://youtu.be/pHh35mSnG0c
