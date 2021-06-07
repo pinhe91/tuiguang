@@ -103,6 +103,12 @@
 
 原文 http://qikan.minghui.org/qikan.aspx?id=203081
 
+# 了解真相资讯
+
+## 大纪元新闻网：https://www.epochtimes.com/
+
 ## 明見神話網站：http://www.minrefer.com/
 
 ## 欺世伪火：https://youtu.be/pHh35mSnG0c
+
+## 翻墙部落：https://git.io/urfos
