@@ -4,7 +4,7 @@
 
 ### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
 
-# 閱讀真相選文
+# 閱讀真相選文（页面底部有精彩）
 
 ## 1976年唐山大地震亲历者的回忆
 
