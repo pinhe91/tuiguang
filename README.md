@@ -111,7 +111,7 @@
 
 ## 明見神話網站：http://www.minrefer.com/
 
-##  点击下载：[明见神话App_安卓版](https://github.com/pinhe91/tuiguang/files/6607008/mingjian.zip)
+##  点击下载：[明见神话App_安卓版](https://github.com/pinhe91/tuiguang/files/6607008/mingjian.zip)（免翻墙软件）
 
 ## 欺世伪火：https://youtu.be/pHh35mSnG0c
 
