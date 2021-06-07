@@ -103,9 +103,11 @@
 
 原文 http://qikan.minghui.org/qikan.aspx?id=203081
 
-# 了解真相资讯
+# 了解真相资讯（國外網站需翻牆）
 
 ## 大纪元新闻网：https://www.epochtimes.com/
+
+## 新唐人電視台：https://www.ntdtv.com/b5/
 
 ## 明見神話網站：http://www.minrefer.com/
 
