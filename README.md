@@ -111,6 +111,8 @@
 
 ## 明見神話網站：http://www.minrefer.com/
 
+## 明见神话App_安卓版 下载:http://www.minrefer.com/mingjian.apk
+
 ## 欺世伪火：https://youtu.be/pHh35mSnG0c
 
 ## 翻墙部落：https://git.io/urfos
