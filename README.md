@@ -126,14 +126,14 @@
 
 原文 http://www.minghui.org/mh/articles/2021/6/9/青海老太法庭抗辩-社保局主动撤诉-426766.html
 
-## 明慧周报：中国版（第八五二期）
+## 明慧周报：中国版（第八五三期）
 
-![image](https://user-images.githubusercontent.com/79625284/120793680-c7d82000-c569-11eb-9fc2-52aece1e8439.png)
-![image](https://user-images.githubusercontent.com/79625284/120793733-dd4d4a00-c569-11eb-998d-19b607614d47.png)
-![image](https://user-images.githubusercontent.com/79625284/120793789-efc78380-c569-11eb-8d07-eb91e7b741ea.png)
-![image](https://user-images.githubusercontent.com/79625284/120793833-fbb34580-c569-11eb-8cc2-0a02544e86b5.png)
+![image](https://user-images.githubusercontent.com/79625284/121652816-a11c6b00-cace-11eb-871f-30ee8801a335.png)
+![image](https://user-images.githubusercontent.com/79625284/121652885-b396a480-cace-11eb-8c89-1af88646d470.png)
+![image](https://user-images.githubusercontent.com/79625284/121652942-c315ed80-cace-11eb-84cc-0d3e8d844019.png)
+![image](https://user-images.githubusercontent.com/79625284/121653012-d4f79080-cace-11eb-9fd8-73f7dc069e9c.png)
 
-原文 http://qikan.minghui.org/qikan.aspx?id=203081
+原文 http://qikan.minghui.org/qikan.aspx?id=203181
 
 # 了解真相资讯（國外網站需翻牆）
 
