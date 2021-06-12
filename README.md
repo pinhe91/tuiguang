@@ -14,11 +14,13 @@
 二零二一年六月六日，风和日丽，在哥德堡的植物公园散步和野餐的人们被法轮功学员的炼功场面所吸引。
 
 ![image](https://user-images.githubusercontent.com/79625284/121769685-9f6aaa00-cb97-11eb-8e63-5c2aa3a2648c.png)
+
 ![image](https://user-images.githubusercontent.com/79625284/121769710-c032ff80-cb97-11eb-9dea-25372377fffd.png)
 
 图1～2：法轮功学员在在哥德堡的植物公园举行弘法活动
 
 ![image](https://user-images.githubusercontent.com/79625284/121769744-ec4e8080-cb97-11eb-9cb3-df5fc4d77200.png)
+
 ![image](https://user-images.githubusercontent.com/79625284/121769765-0b4d1280-cb98-11eb-873f-5386dbed8b9d.png)
 
 图3～4：向民众递上法轮功真相传单
