@@ -79,10 +79,18 @@
 
 ## 新唐人電視台：https://www.ntdtv.com/b5/
 
-## 明見神話網站：http://www.minrefer.com/
+## 希望之聲：https://www.soundofhope.org/
 
-##  点击下载：[明见神话App_安卓版](https://github.com/pinhe91/tuiguang/files/6607008/mingjian.zip)（免翻墙软件）
+## 看中國：https://www.secretchina.com/
+
+## 追查迫害法輪功國際組織：http://www.zhuichaguoji.org/
+
+## 网门：https://ogate.org/#ogHome
+
+## 翻墙部落：https://git.io/urfos
 
 ## 欺世伪火：https://youtu.be/pHh35mSnG0c
 
-## 翻墙部落：https://git.io/urfos
+## 明見神話網站：http://www.minrefer.com/
+
+##  点击下载：[明见神话App_安卓版](https://github.com/pinhe91/tuiguang/files/6607008/mingjian.zip)（免翻墙软件）
