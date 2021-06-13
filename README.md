@@ -99,6 +99,6 @@
 
 ## 明見神話網站：http://www.minrefer.com/
 
-##  点击下载：[明见神话App_安卓版](https://github.com/pinhe91/tuiguang/files/6607008/mingjian.zip)（免翻墙软件）
+##  点击下载免翻墙软件：[明见神话App_安卓版](https://github.com/pinhe91/tuiguang/files/6607008/mingjian.zip)
 
 # [返回顶部](https://git.io/Js3EY)
