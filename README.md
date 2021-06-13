@@ -81,9 +81,15 @@
 
 ### 设置后翻墙：自由门下载成功后解压文件，再双击图标打开自由门，再点设置，再点自由门代理控制，再点所有网站都通过自由门代理访问，再点确定，设置完成，这样就翻墙了，可以访问国外网站了。
 
+### 明慧网：http://www.minghui.org/
+
+### 正见网：http://www.zhengjian.org/
+
 ### 大纪元新闻网：https://www.epochtimes.com/
 
 ### 新唐人電視台：https://www.ntdtv.com/b5/
+
+### 神韵艺术团：https://zh-cn.shenyunperformingarts.org/
 
 ### 希望之聲：https://www.soundofhope.org/
 
