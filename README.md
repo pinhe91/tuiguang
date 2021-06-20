@@ -181,6 +181,8 @@
 
 原文 http://www.minghui.org/mh/articles/2021/6/20/这个起诉书我是不可能接受的-426822.html
 
+## 聲明：[我要做三退](http://tui.ddns.net/sars/index.php?from=twitter&tag=pLWId#exp-do-3tui)
+
 ## 明慧周报：中国版（第八五四期）
 
 ![image](https://user-images.githubusercontent.com/79625284/122535756-71351080-d056-11eb-8fcf-2a90f2d43e42.png)
