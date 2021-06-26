@@ -154,8 +154,6 @@
 
 ### 追查迫害法輪功國際組織：http://www.zhuichaguoji.org/
 
-### 网门：https://ogate.org/#ogHome
-
 ### 欺世伪火：https://youtu.be/pHh35mSnG0c
 
 ## [返回顶部](https://git.io/Js3EY)
