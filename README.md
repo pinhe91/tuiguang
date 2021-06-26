@@ -156,10 +156,6 @@
 
 ### 网门：https://ogate.org/#ogHome
 
-### 翻墙部落：https://git.io/urfos
-
-### 小日每日真相：https://git.io/wnn
-
 ### 欺世伪火：https://youtu.be/pHh35mSnG0c
 
 ## [返回顶部](https://git.io/Js3EY)
