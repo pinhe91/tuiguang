@@ -39,7 +39,7 @@
 
 原文 https://www.minghui.org/mh/articles/2021/6/28/江苏连云港市七旬仲伟玲被迫害得皮包骨、生命垂危-427506.html
 
-## 聲明：[我要做三退](http://tui.ddns.net/sars/index.php?from=twitter&tag=pLWId#exp-do-3tui)
+## 聲明：[我要做三退](http://tuidang.ddns.net/)
 
 ## 明慧周报：中国版（第八五五期）
 
