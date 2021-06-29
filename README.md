@@ -35,7 +35,7 @@
 
 原文 https://www.minghui.org/mh/articles/2021/6/29/念“法轮大法好”-孙女的高烧退了-427511.html
 
-## 聲明：[我要做三退](http://tuidang.ddns.net/)
+## 三退聲明：[我要做三退](http://tuidang.ddns.net/)
 
 ## 明慧周报：中国版（第八五五期）
 
