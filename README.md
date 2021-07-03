@@ -2,7 +2,7 @@
 
 ## 真相圖片
 
-![fsf1](https://user-images.githubusercontent.com/79625284/123816731-20f96080-d92a-11eb-81cf-3b9c945078b4.jpg)
+![99251](https://user-images.githubusercontent.com/79625284/124355788-93798180-dc45-11eb-98da-d58b656f5e93.jpg)
 
 ## Visit English website
 
@@ -37,14 +37,14 @@
 
 ## 三退聲明：[我要做三退](http://tuidang.ddns.net/)
 
-## 明慧周报：中国版（第八五五期）
+## 明慧周报：中国版（第八五六期）
 
-![image](https://user-images.githubusercontent.com/79625284/123399719-87ebe200-d5d7-11eb-8455-c73b8f306180.png)
-![image](https://user-images.githubusercontent.com/79625284/123399858-b4076300-d5d7-11eb-9dad-1bfaffd0c3c4.png)
-![image](https://user-images.githubusercontent.com/79625284/123400057-edd86980-d5d7-11eb-93ec-f168eaa69c52.png)
-![image](https://user-images.githubusercontent.com/79625284/123400132-0183d000-d5d8-11eb-8bf4-49651ae40622.png)
+![image](https://user-images.githubusercontent.com/79625284/124355734-544b3080-dc45-11eb-8cea-343311cb52c9.png)
+![image](https://user-images.githubusercontent.com/79625284/124355742-5f05c580-dc45-11eb-926e-d87ca26dd5d3.png)
+![image](https://user-images.githubusercontent.com/79625284/124355750-6c22b480-dc45-11eb-84a2-657e425d0a2a.png)
+![image](https://user-images.githubusercontent.com/79625284/124355773-7e045780-dc45-11eb-925f-55dfeabf028f.png)
 
-原文 http://qikan.minghui.org/qikan.aspx?id=203390
+原文 http://qikan.minghui.org/qikan.aspx?id=203491
 
 ## 了解真相资讯（國外網站需翻牆）
 
