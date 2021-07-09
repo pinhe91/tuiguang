@@ -42,7 +42,7 @@
 ![image](https://user-images.githubusercontent.com/79625284/125057166-86441300-e0db-11eb-9302-fe5094ffc910.png)
 
 
-原文 http://qikan.minghui.org/qikan.aspx?id=203491
+原文 http://qikan.minghui.org/qikan.aspx?id=203597
 
 ## 了解真相资讯（國外網站需翻牆）
 
