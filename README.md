@@ -34,12 +34,13 @@
 
 ## 三退聲明：[我要做三退](http://tuidang.ddns.net/)
 
-## 明慧周报：中国版（第八五六期）
+## 明慧周报：中国版（第857期）
 
-![image](https://user-images.githubusercontent.com/79625284/124355734-544b3080-dc45-11eb-8cea-343311cb52c9.png)
-![image](https://user-images.githubusercontent.com/79625284/124355742-5f05c580-dc45-11eb-926e-d87ca26dd5d3.png)
-![image](https://user-images.githubusercontent.com/79625284/124355750-6c22b480-dc45-11eb-84a2-657e425d0a2a.png)
-![image](https://user-images.githubusercontent.com/79625284/124355773-7e045780-dc45-11eb-925f-55dfeabf028f.png)
+![image](https://user-images.githubusercontent.com/79625284/125057028-63b1fa00-e0db-11eb-981f-a38e638802bf.png)
+![image](https://user-images.githubusercontent.com/79625284/125057072-70cee900-e0db-11eb-8618-8c809de9b56c.png)
+![image](https://user-images.githubusercontent.com/79625284/125057123-7b897e00-e0db-11eb-9732-52c23076ca6d.png)
+![image](https://user-images.githubusercontent.com/79625284/125057166-86441300-e0db-11eb-9302-fe5094ffc910.png)
+
 
 原文 http://qikan.minghui.org/qikan.aspx?id=203491
 
