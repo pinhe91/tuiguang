@@ -1,5 +1,11 @@
 # 如意小站
 
+## Visit English website
+
+### THE FPOCH TIMES：https://www.theepochtimes.com/
+
+### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
+
 ## 真相選文
 
 ### 辽宁营口市教师陈文多屡迫害离世
@@ -81,11 +87,5 @@
 ### 看中國：https://www.secretchina.com/
 
 ### 追查迫害法輪功國際組織：http://www.zhuichaguoji.org/
-
-## Visit English website
-
-### THE FPOCH TIMES：https://www.theepochtimes.com/
-
-### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
 
 ## [返回顶部](https://git.io/Js3EY)
