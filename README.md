@@ -50,14 +50,14 @@
 
 ## 三退聲明：[我要做三退](http://tuidang.ddns.net/)
 
-## 明慧周报：中国版（第857期）
+## 明慧周报：中国版（第八五八期）
 
-![image](https://user-images.githubusercontent.com/79625284/125057028-63b1fa00-e0db-11eb-981f-a38e638802bf.png)
-![image](https://user-images.githubusercontent.com/79625284/125057072-70cee900-e0db-11eb-8618-8c809de9b56c.png)
-![image](https://user-images.githubusercontent.com/79625284/125057123-7b897e00-e0db-11eb-9732-52c23076ca6d.png)
-![image](https://user-images.githubusercontent.com/79625284/125057166-86441300-e0db-11eb-9302-fe5094ffc910.png)
+![image](https://user-images.githubusercontent.com/79625284/125921096-cd51217a-bb40-4795-b591-9403abd2850c.png)
+![image](https://user-images.githubusercontent.com/79625284/125921154-17347070-3963-4201-9331-6ee7cc1350a1.png)
+![image](https://user-images.githubusercontent.com/79625284/125921211-e3edc776-64c5-4892-aee5-7840c10273d2.png)
+![image](https://user-images.githubusercontent.com/79625284/125921269-219ec6a4-33ce-4c7b-9bce-6567cd32a817.png)
 
-原文 https://www.minghui.org/mh/articles/2021/7/10/辽宁营口市教师陈文多屡迫害离世-427985.html
+原文 http://qikan.minghui.org/qikan.aspx?id=203665
 
 ## 了解真相资讯（國外網站需翻牆）
 
