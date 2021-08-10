@@ -6,11 +6,11 @@
 
 ### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
 
-## 真相特選
+## 真相特选
 
-### 點擊閱讀：[与司灾神的对话：数十种灾难和大法弟子的职责](https://github.com/pinhe91/jcxw1/tree/main) 
+### 点击阅读：[与司灾神的对话：数十种灾难和大法弟子的职责](https://github.com/pinhe91/jcxw1/tree/main) 
 
-## 真相選文
+## 真相选文
 
 ### 与司灾神的对话（二）：五行异动　诸灾频频
 
