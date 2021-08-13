@@ -12,7 +12,7 @@
 
 ### 点击阅读：[抗疫非政治　人间有奇迹](https://github.com/pinhe91/jcxw2/tree/main) 
 
-## 点击阅读：[讲真相中疑难问题的简答](https://github.com/pinhe91/jcxw3/blob/main/README.md)
+### 点击阅读：[讲真相中疑难问题的简答](https://github.com/pinhe91/jcxw3/blob/main/README.md)
 
 ## 真相选文
 
