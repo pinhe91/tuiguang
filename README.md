@@ -71,14 +71,14 @@
 
 ## 三退聲明：[我要做三退](http://tuidang.ddns.net/)
 
-## 明慧周报：中国版（第八六一期）
+## 明慧周报：中国版（第八六二期）
 
-![image](https://user-images.githubusercontent.com/79625284/128477303-24efb116-a60c-474f-b1ca-1a905aaa71c0.png)
-![image](https://user-images.githubusercontent.com/79625284/128477427-064c0065-2b26-4f20-860b-3da5d9798ca8.png)
-![image](https://user-images.githubusercontent.com/79625284/128477511-00d3467c-22eb-4f07-af27-aad89f3f87cf.png)
-![image](https://user-images.githubusercontent.com/79625284/128477575-7b056c78-6387-4a5a-b96c-cda69444b9d0.png)
+![image](https://user-images.githubusercontent.com/79625284/129330692-c21a0864-8c36-4775-b878-eebb1b958c77.png)
+![image](https://user-images.githubusercontent.com/79625284/129330766-fb553665-79ec-4ecb-b082-f37b5f081a8c.png)
+![image](https://user-images.githubusercontent.com/79625284/129330838-6be514cf-74a7-4123-8713-b705d28bae24.png)
+![image](https://user-images.githubusercontent.com/79625284/129330891-beb63940-d439-4876-af18-ac71a5fd12d6.png)
 
-原文 http://qikan.minghui.org/qikan.aspx?id=203776
+原文 http://qikan.minghui.org/qikan.aspx?id=203823
 
 ## 了解真相资讯（國外網站需翻牆）
 
