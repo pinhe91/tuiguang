@@ -58,8 +58,6 @@
 
 ### 點連接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2021/09/10/mhzb_866_pdf.pdf
 
-原文 http://qikan.minghui.org/qikan.aspx?id=203961
-
 ## 了解真相资讯（國外網站需翻牆）
 
 ### 免费下载电脑版自由门7.96版翻墙软件，点击下载：[自由门7.97版](https://github.com/pinhe91/tuiguang/files/6839679/fg797r.zip)
