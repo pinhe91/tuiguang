@@ -1,5 +1,9 @@
 # 如意小站
 
+## 神州明见集直播新闻，影视，点播真相视频及历史要闻于一体，给您展现时代的脉络，倾诉您不为人知的真相和远景。欢迎下载哦！
+
+## 点击下载：[神州明见安卓版app下载](https://github.com/pinhe91/tuiguang/issues/2)
+
 ## Visit English website
 
 ### THE FPOCH TIMES：https://www.theepochtimes.com/
