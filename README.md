@@ -2,7 +2,7 @@
 
 ## 神州明见集直播新闻，影视，点播真相视频及历史要闻于一体，给您展现时代的脉络，倾诉您不为人知的真相和远景。欢迎下载哦！
 
-## 点击下载：[神州明见安卓版app下载](https://github.com/pinhe91/tuiguang/issues/2)
+## 点击下载：[神州明见安卓版app](https://github.com/pinhe91/tuiguang/files/7240768/_5.1.zip)
 
 ## Visit English website
 
