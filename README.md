@@ -70,7 +70,7 @@
 
 ## 明慧周报：中国版（第八七零期）
 
-### 點連接閱讀：http://qikan.minghui.org/mhqkpage/qikanimage/2021/10/07/mhzb_870_pdf.pdf
+### 點鏈接閱讀：http://qikan.minghui.org/mhqkpage/qikanimage/2021/10/07/mhzb_870_pdf.pdf
 
 ## 了解真相资讯（國外網站需翻牆）
 
