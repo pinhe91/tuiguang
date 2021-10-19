@@ -41,7 +41,7 @@
 
 ![1223q](https://user-images.githubusercontent.com/79625284/137880776-4b323521-6ded-4e34-be96-554e432d426e.png)
 
-原文 http://www.minghui.org/mh/articles/2021/10/19/小孙女的“针眼”消失了-8KlLtns-D17PZ8J8
+原文 http://www.minghui.org/mh/articles/2021/10/19/小孙女的“针眼”消失了-429066.html
 
 ## 三退聲明：[我要做三退](http://tuidang.ddns.net/)
 
