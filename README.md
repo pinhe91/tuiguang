@@ -1,6 +1,6 @@
 # 如意小站
 
-## 圖片真相
+## 圖片真相（會更新）
 
 ![image](https://user-images.githubusercontent.com/79625284/138067932-126e8258-d608-4847-adb6-963e768eb386.png)
 
@@ -51,7 +51,7 @@
 
 原文 http://www.minghui.org/mh/articles/2021/10/20/遭冤狱迫害致残-吉林榆树市郑洪琴又被枉判六年半-432712.html
 
-## 三退聲明：[我要做三退](http://tuidang.ddns.net/)
+### 三退聲明：[我要做三退](http://tuidang.ddns.net/)
 
 ## 明慧周报：中国版（第八七一期）
 
