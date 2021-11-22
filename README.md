@@ -35,7 +35,9 @@
 【明慧网二零二一年十一月二十二日】（明慧新西兰记者站报导）随着新西兰禁足令的进一步宽松，二十五人以下在保持两米社交距离的情况下可以聚会。二零二一年十一月二十一日星期日，奥克兰法轮功学员在市中心以及两个区的海边公园集体炼功，祥和的音乐加上优美舒展的五套功法，让人们驻足观望。
 
 ![image](https://user-images.githubusercontent.com/79625284/142837270-ff429296-4a30-4fc4-8c5c-a6e9d59fff11.png)
+
 ![image](https://user-images.githubusercontent.com/79625284/142837335-2f43a20a-7392-4b7e-bf7b-75841fad2c4a.png)
+
 ![image](https://user-images.githubusercontent.com/79625284/142837376-1be3f0c8-e518-4e4b-a49c-313869fb830b.png)
 
 图1～3：奥克兰法轮功学员集体炼功，场面祥和。
