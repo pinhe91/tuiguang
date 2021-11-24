@@ -2,7 +2,7 @@
 
 ## 圖片真相（會更新）
 
-![dftu919](https://user-images.githubusercontent.com/79625284/143001401-211bc88c-280e-4056-a62f-235a64083db4.jpg)
+![stypa12a](https://user-images.githubusercontent.com/79625284/143241003-48768546-08ea-4777-bd24-383502712d83.png)
 
 ## 免翻牆軟件下載
 
