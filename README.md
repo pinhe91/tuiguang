@@ -4,8 +4,6 @@
 
 ![fsf212](https://user-images.githubusercontent.com/79625284/144581952-b497ce7a-5344-422d-b1bd-b062bce10e2f.jpg)
 
-### 点击下载：[神州明见安卓版app](https://github.com/pinhe91/tuiguang/files/7240768/_5.1.zip)
-
 ## Visit English website
 
 ### THE FPOCH TIMES：https://www.theepochtimes.com/
