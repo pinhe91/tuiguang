@@ -79,7 +79,7 @@
 注：
 [1] 李洪志师父诗词：《洪吟四》〈对联〉
 
-原文 https://www.minghui.org/mh/articles/2021/12/12/真是坏事变成了好事.html
+原文 https://www.minghui.org/mh/articles/2021/12/12/真是坏事变成了好事-434686.html
 
 ### 三退聲明：[我要做三退](http://tuidang.ddns.net/)
 
