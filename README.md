@@ -201,7 +201,7 @@
 
 原文 http://www.minghui.org/mh/articles/2021/12/14/四川周玉宝告社保中心停发退休金胜诉-434789.html
 
-### 三退聲明：[我要做三退](http://tuidang.ddns.net/)
+### 三退聲明：[我要做三退](https://tuidang.epochtimes.com/)
 
 ## 明慧周报：中国版（第八七九期）
 
