@@ -2,7 +2,7 @@
 
 ## 圖片真相（會更新）
 
-![zyjm23111](https://user-images.githubusercontent.com/79625284/145973793-80a89f73-c1ea-4a4b-ac82-ba1ca73f1479.jpg)
+![FGJkAzCUUAAotBH](https://user-images.githubusercontent.com/79625284/146347492-554d007b-d9cd-4e46-b0fe-99bc215d247b.jpg)
 
 ## Visit English website
 
