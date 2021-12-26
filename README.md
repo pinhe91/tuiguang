@@ -41,7 +41,7 @@
 
 我无法用语言表达对师父洪大慈悲的感激之情，让本来不相信法轮大法的丈夫亲身体会了大法的美好与神奇，对我们持有偏见的儿子心服口服。
 
-原文 http://www.minghui.org/mh/articles/2021/12/26/疫情重-村村封-丈夫退烧有妙招.html
+原文 http://www.minghui.org/mh/articles/2021/12/26/疫情重-村村封-丈夫退烧有妙招-435337.html
 
 ### 三退聲明：[我要做三退](https://tuidang.epochtimes.com/)
 
