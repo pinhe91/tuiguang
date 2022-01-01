@@ -14,6 +14,8 @@
 
 ### 点击阅读：[中国大陆30省大法弟子恭祝师尊元旦好](https://greetings.minghui.org/mh/articles/2021/12/31/%E4%B8%AD%E5%9B%BD%E5%A4%A7%E9%99%8630%E7%9C%81%E5%A4%A7%E6%B3%95%E5%BC%9F%E5%AD%90%E6%81%AD%E7%A5%9D%E5%B8%88%E5%B0%8A%E5%85%83%E6%97%A6%E5%A5%BD-436087.html)(此文需翻牆閱讀）
 
+### 点击阅读：[海外60国大法弟子恭祝师尊新年好](https://greetings.minghui.org/mh/articles/2022/1/1/%E6%B5%B7%E5%A4%9660%E5%9B%BD%E5%A4%A7%E6%B3%95%E5%BC%9F%E5%AD%90%E6%81%AD%E7%A5%9D%E5%B8%88%E5%B0%8A%E6%96%B0%E5%B9%B4%E5%A5%BD-435930.html)(此文需翻牆閱讀）
+
 ### 点击阅读：[讲真相中疑难问题的简答](https://github.com/pinhe91/jcxw3/tree/main)
 
 ### 点击阅读：[人类的大劫难由中共迫害法轮功而起](https://github.com/pinhe91/jcxw4/tree/main) 
