@@ -2,7 +2,7 @@
 
 ## 圖片真相（會更新）
 
-![IMG_20220106_172811_488](https://user-images.githubusercontent.com/79625284/151524383-284fedce-968d-4bfc-a4ab-c1f7b1d4a940.jpg)
+![IMG_20220106_580](https://user-images.githubusercontent.com/79625284/151524615-ab28ade7-83e8-4417-9f34-7e9d833b2215.jpg)
 
 ## Visit English website
 
