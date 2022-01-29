@@ -12,6 +12,8 @@
 
 ## 真相特选
 
+### 点击阅读：[见证大法好 中国百姓恭祝李大师过年好](https://greetings.minghui.org/mh/articles/2022/1/29/%E8%A7%81%E8%AF%81%E5%A4%A7%E6%B3%95%E5%A5%BD-%E4%B8%AD%E5%9B%BD%E7%99%BE%E5%A7%93%E6%81%AD%E7%A5%9D%E6%9D%8E%E5%A4%A7%E5%B8%88%E8%BF%87%E5%B9%B4%E5%A5%BD-437838.html)(需翻牆）
+
 ### 点击阅读：[上网学法轮功 　九十余国两万多人受益](https://github.com/pinhe91/jcxw5/tree/main)
 
 ### 点击阅读：[讲真相中疑难问题的简答](https://github.com/pinhe91/jcxw3/tree/main)
