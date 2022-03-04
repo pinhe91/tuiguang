@@ -47,6 +47,10 @@
 
 法网恢恢，疏而不漏；善恶有报，毫厘不爽。迫害法轮功的元凶及其爪牙们针对大法和修炼者所做的一切，最终都将受到法律的追究、正义的审判。希望那些还在参与迫害法轮功的人及早回头，停止迫害，退出党团队，方为明智之选。
 
+![image](https://user-images.githubusercontent.com/79625284/156733519-37b1ad07-1fbf-4e08-b92f-fdb7e7c9a404.png)
+
+惠从冰
+
 原文 https://www.minghui.org/mh/articles/2022/3/4/原山东政法委副书记惠从冰遭恶报获刑七年-439646.html
 
 ### 三退聲明：[我要做三退](https://tuidang.epochtimes.com/)
