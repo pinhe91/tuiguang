@@ -24,7 +24,7 @@
 
 ### 点击阅读：[与司灾神的对话：数十种灾难和大法弟子的职责](https://github.com/pinhe91/jcxw1/tree/main) 
 
-### 点击阅读：[抗疫非政治　人间有奇迹](https://github.com/pinhe91/jcxw2/tree/main) 
+### 点击阅读：[瘟疫带来历史巨变 上天在判定每个人去留](https://github.com/pinhe91/jcxw2/blob/main/README.md) 
 
 ## 真相选文
 
