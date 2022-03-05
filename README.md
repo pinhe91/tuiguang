@@ -14,6 +14,8 @@
 
 ### 点击阅读：[台湾灯会　法轮大法船花灯送祝福](https://github.com/pinhe91/dfhcjsr/tree/main) 
 
+### 点击阅读：[再谈“天安门自焚”伪案](https://github.com/pinhe91/whjm/tree/main)
+
 ### 点击阅读：[上网学法轮功 　九十余国两万多人受益](https://github.com/pinhe91/jcxw5/tree/main)
 
 ### 点击阅读：[讲真相中疑难问题的简答](https://github.com/pinhe91/jcxw3/tree/main)
