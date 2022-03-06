@@ -16,6 +16,8 @@
 
 ### 点击阅读：[再谈“天安门自焚”伪案](https://github.com/pinhe91/whjm/tree/main)
 
+### 点击阅读：[“法律不讲，道理不讲，你们讲什么？”](https://github.com/pinhe91/jlxe/tree/main)
+
 ### 点击阅读：[瘟疫带来历史巨变 上天在判定每个人去留](https://github.com/pinhe91/jcxw2/blob/main/README.md)
 
 ### 点击阅读：[上网学法轮功 　九十余国两万多人受益](https://github.com/pinhe91/jcxw5/tree/main)
