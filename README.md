@@ -14,6 +14,10 @@
 
 ### 点击阅读：[“九字真言”真神奇](https://github.com/pinhe91/njzzyh/tree/main)
 
+### 点击阅读：[上网学法轮功 　九十余国两万多人受益](https://github.com/pinhe91/jcxw5/tree/main)
+
+### 点击阅读：[讲真相中疑难问题的简答](https://github.com/pinhe91/jcxw3/tree/main)
+
 ### 点击阅读：[台湾灯会　法轮大法船花灯送祝福](https://github.com/pinhe91/dfhcjsr/tree/main) 
 
 ### 点击阅读：[再谈“天安门自焚”伪案](https://github.com/pinhe91/whjm/tree/main)
@@ -25,10 +29,6 @@
 ### 点击阅读：[人类的大劫难由中共迫害法轮功而起](https://github.com/pinhe91/jcxw4/tree/main) 
 
 ### 点击阅读：[与司灾神的对话：数十种灾难和大法弟子的职责](https://github.com/pinhe91/jcxw1/tree/main) 
-
-### 点击阅读：[上网学法轮功 　九十余国两万多人受益](https://github.com/pinhe91/jcxw5/tree/main)
-
-### 点击阅读：[讲真相中疑难问题的简答](https://github.com/pinhe91/jcxw3/tree/main)
 
 ## 真相选文
 
