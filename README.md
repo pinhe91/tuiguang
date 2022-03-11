@@ -12,6 +12,8 @@
 
 ## 真相特选
 
+### 点击阅读：[“九字真言”真神奇](https://github.com/pinhe91/njzzyh/tree/main)
+
 ### 点击阅读：[台湾灯会　法轮大法船花灯送祝福](https://github.com/pinhe91/dfhcjsr/tree/main) 
 
 ### 点击阅读：[再谈“天安门自焚”伪案](https://github.com/pinhe91/whjm/tree/main)
