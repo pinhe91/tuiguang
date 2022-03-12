@@ -12,6 +12,8 @@
 
 ## 真相特选
 
+### 点击阅读：[人鬼两重天](https://github.com/pinhe91/xdfcs/tree/main)
+
 ### 点击阅读：[“九字真言”真神奇](https://github.com/pinhe91/njzzyh/tree/main)
 
 ### 点击阅读：[上网学法轮功 　九十余国两万多人受益](https://github.com/pinhe91/jcxw5/tree/main)
