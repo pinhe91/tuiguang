@@ -16,6 +16,8 @@
 
 ### 点击阅读：[“九字真言”真神奇](https://github.com/pinhe91/njzzyh/tree/main)
 
+### 点击阅读：[明真相退党后　邻居大爷癌症康复](https://github.com/pinhe91/stbpa/tree/main)
+
 ### 点击阅读：[上网学法轮功 　九十余国两万多人受益](https://github.com/pinhe91/jcxw5/tree/main)
 
 ### 点击阅读：[讲真相中疑难问题的简答](https://github.com/pinhe91/jcxw3/tree/main)
