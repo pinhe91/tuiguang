@@ -12,6 +12,8 @@
 
 ## 真相特选
 
+### 点击阅读：[明白真相得福报　敌视大法遭恶报](https://github.com/pinhe91/mzxdjd/tree/main)
+
 ### 点击阅读：[他们在告诉你躲避瘟疫的良方](https://github.com/pinhe91/bwylf/tree/main)
 
 ### 点击阅读：[人鬼两重天](https://github.com/pinhe91/xdfcs/tree/main)
