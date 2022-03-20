@@ -18,6 +18,8 @@
 
 ### 点击阅读：[人鬼两重天](https://github.com/pinhe91/xdfcs/tree/main)
 
+### 点击阅读：[修法轮大法　癌症患者越活越年轻](https://github.com/pinhe91/xdfh/tree/main)
+
 ### 点击阅读：[“九字真言”真神奇](https://github.com/pinhe91/njzzyh/tree/main)
 
 ### 点击阅读：[染疫后念九字真言　三天恢复健康](https://github.com/pinhe91/rynjzzyh/tree/main)
