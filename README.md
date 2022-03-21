@@ -12,6 +12,8 @@
 
 ## 真相特选
 
+### 点击阅读：[新学员：法轮功把我带到了光明的世界](https://github.com/pinhe91/flggwgm/tree/main)
+
 ### 点击阅读：[明白真相得福报　敌视大法遭恶报](https://github.com/pinhe91/mzxdjd/tree/main)
 
 ### 点击阅读：[他们在告诉你躲避瘟疫的良方](https://github.com/pinhe91/bwylf/tree/main)
