@@ -2,7 +2,7 @@
 
 ## 圖片真相（會更新）
 
-![image](https://user-images.githubusercontent.com/79625284/159231081-8e1c5b5f-c5c3-4e5a-bea2-96aa54411ec3.png)
+![IMG_20220106_172753_5801](https://user-images.githubusercontent.com/79625284/159449263-320267d2-7ac9-4e56-9da9-ed82952ba3ad.jpg)
 
 ## Visit English website
 
@@ -11,6 +11,8 @@
 ### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
 
 ## 真相特选
+
+### 点击阅读：[还原事实真相　摒弃谎言自救](https://github.com/pinhe91/phflgyz/blob/main)
 
 ### 点击阅读：[新学员：法轮功把我带到了光明的世界](https://github.com/pinhe91/flggwgm/tree/main)
 
