@@ -12,6 +12,8 @@
 
 ## 真相特选
 
+### 点击阅读：[圣派翠克节游行　美国市长盛赞法轮功](https://github.com/pinhe91/gwzcflg/tree/main)
+
 ### 点击阅读：[还原事实真相　摒弃谎言自救](https://github.com/pinhe91/phflgyz/tree/main)
 
 ### 点击阅读：[新学员：法轮功把我带到了光明的世界](https://github.com/pinhe91/flggwgm/tree/main)
