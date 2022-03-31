@@ -16,6 +16,8 @@
 
 ### 点击阅读：[还原事实真相　摒弃谎言自救](https://github.com/pinhe91/phflgyz/tree/main)
 
+### 点击阅读：[安裝工明白真相　全家「翻牆」退黨](https://github.com/pinhe91/stbpay/tree/main)
+
 ### 点击阅读：[新学员：法轮功把我带到了光明的世界](https://github.com/pinhe91/flggwgm/tree/main)
 
 ### 点击阅读：[明白真相得福报　敌视大法遭恶报](https://github.com/pinhe91/mzxdjd/tree/main)
