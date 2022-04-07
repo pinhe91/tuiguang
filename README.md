@@ -12,6 +12,8 @@
 
 ## 真相特选
 
+### 点击阅读：[保护大法弟子得福报](https://github.com/pinhe91/zxdzs/tree/main)
+
 ### 点击阅读：[“铁牛”还不如我这个肉身](https://github.com/pinhe91/hsfbm/tree/main)
 
 ### 点击阅读：[苍天有眼识善恶　仇视大法命归阴](https://github.com/pinhe91/chdfzeb/tree/main)
