@@ -12,6 +12,8 @@
 
 ## 真相特选
 
+### 点击阅读：[攻击伦敦中国城法轮功学员　一华人被判监禁](https://github.com/pinhe91/erzb/tree/main)
+
 ### 点击阅读：[诚念九字真言　哥哥克服了抑郁症](https://github.com/pinhe91/jzzyh/tree/main)
 
 ### 点击阅读：[保护大法弟子得福报](https://github.com/pinhe91/zxdzs/tree/main)
