@@ -2,7 +2,7 @@
 
 ## 圖片真相（會更新）
 
-![浊世清莲1292](https://user-images.githubusercontent.com/79625284/162564986-7b4ebdc3-36fc-495e-80f8-c20c0c6f5aa9.jpg)
+![IMG_20220106_580](https://user-images.githubusercontent.com/79625284/162610707-fe6d0f0b-a565-4683-a6e8-6a5e642aba99.jpg)
 
 ## Visit English website
 
