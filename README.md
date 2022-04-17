@@ -12,6 +12,8 @@
 
 ## 真相特选
 
+### 点击阅读：[江西女子监狱胡睿华残酷迫害法轮功学员的恶行](https://github.com/pinhe91/qcphflgex/tree/main)
+
 ### 点击阅读：[攻击伦敦中国城法轮功学员　一华人被判监禁](https://github.com/pinhe91/erzb/tree/main)
 
 ### 点击阅读：[侄子诚念九字真言　晚期肺癌痊愈](https://github.com/pinhe91/xdfyf/tree/main)
