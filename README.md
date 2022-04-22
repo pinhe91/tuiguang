@@ -10,7 +10,9 @@
 
 ### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
 
-## 真相特选
+## 真相文章特选
+
+### 点击阅读：[散文：疫情下的春天](https://github.com/pinhe91/yqxdct/tree/main)
 
 ### 点击阅读：[愿您登上那即将起航的金色法船](https://github.com/pinhe91/ynndsfc/tree/main)
 
