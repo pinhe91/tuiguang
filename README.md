@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[纪念“四·二五”　纽约举办大游行](https://github.com/pinhe91/sewhpsf/tree/main)
+
 ### 点击阅读：[回想当年的“四·二五”](https://github.com/pinhe91/hxdnsew/tree/main)
 
 ### 点击阅读：[散文：疫情下的春天](https://github.com/pinhe91/yqxdct/tree/main)
