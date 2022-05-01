@@ -15,6 +15,8 @@
 
 ### 点击阅读：[瘟疫横扫 谁能幸存](https://github.com/pinhe91/dgdjn/tree/main)
 
+### 点击阅读：[天津市市长廖国勋参与迫害法轮功遭恶报猝死](https://github.com/pinhe91/ebswhzj/tree/main)
+
 ### 点击阅读：[纪念“四·二五”　纽约举办大游行](https://github.com/pinhe91/sewhpsf/tree/main)
 
 ### 点击阅读：[回想当年的“四·二五”](https://github.com/pinhe91/hxdnsew/tree/main)
