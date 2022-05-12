@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[来自新加坡的感恩：大法开启崭新人生](https://github.com/pinhe91/dfhdzs/tree/main)
+
 ### 点击阅读：[多倫多大遊行　慶祝法輪大法弘傳三十週年](https://github.com/pinhe91/wysdyx/tree/main)
 
 ### 点击阅读：[瘟疫横扫 谁能幸存](https://github.com/pinhe91/dgdjn/tree/main)
