@@ -2,9 +2,7 @@
 
 ## 圖片真相（會更新）
 
-![FRbt_L_UUAEM0KV](https://user-images.githubusercontent.com/79625284/168068854-aea16665-20b3-436f-8066-66ca5d3c3629.png)
-
-![dfh12](https://user-images.githubusercontent.com/79625284/168070283-8cee0e3f-90fd-4482-8ff9-faec78e64d02.jpg)
+![FSn_s58UcAA-P4B1](https://user-images.githubusercontent.com/79625284/168245038-77e9d3e2-5abe-49b8-ac5b-99754663f0d0.jpg)
 
 ## Visit English website
 
@@ -13,6 +11,8 @@
 ### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
 
 ## 真相文章特选
+
+### 点击阅读：[50多国大法弟子同贺世界法轮大法日](https://greetings.minghui.org/mh/articles/2022/5/13/50%E5%A4%9A%E5%9B%BD%E5%A4%A7%E6%B3%95%E5%BC%9F%E5%AD%90%E5%90%8C%E8%B4%BA%E4%B8%96%E7%95%8C%E6%B3%95%E8%BD%AE%E5%A4%A7%E6%B3%95%E6%97%A5-443169.html)（翻墙访问）
 
 ### 点击阅读：[来自新加坡的感恩：大法开启崭新人生](https://github.com/pinhe91/dfhdzs/tree/main)
 
