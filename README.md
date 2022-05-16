@@ -12,7 +12,7 @@
 
 ## 真相文章特选
 
-### 点击阅读：[50多国大法弟子同贺世界法轮大法日](https://greetings.minghui.org/mh/articles/2022/5/13/50%E5%A4%9A%E5%9B%BD%E5%A4%A7%E6%B3%95%E5%BC%9F%E5%AD%90%E5%90%8C%E8%B4%BA%E4%B8%96%E7%95%8C%E6%B3%95%E8%BD%AE%E5%A4%A7%E6%B3%95%E6%97%A5-443169.html)（翻墙访问）
+### 点击阅读：[中共“骗”字诀不曾改 70年始终欺瞒中国人](https://github.com/pinhe91/dhjzx/tree/main)
 
 ### 点击阅读：[来自新加坡的感恩：大法开启崭新人生](https://github.com/pinhe91/dfhdzs/tree/main)
 
