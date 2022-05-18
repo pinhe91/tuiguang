@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[【庆祝513】25年前我与死神擦肩而过](https://github.com/pinhe91/xdfsq/tree/main)
+
 ### 点击阅读：[中共“骗”字诀不曾改 70年始终欺瞒中国人](https://github.com/pinhe91/dhjzx/tree/main)
 
 ### 点击阅读：[来自新加坡的感恩：大法开启崭新人生](https://github.com/pinhe91/dfhdzs/tree/main)
