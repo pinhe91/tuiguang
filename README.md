@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[凡间异事破迷雾 苍宇圣王度红尘](https://github.com/pinhe91/zjhwz//tree/main)
+
 ### 点击阅读：[【庆祝513】25年前我与死神擦肩而过](https://github.com/pinhe91/xdfsq/tree/main)
 
 ### 点击阅读：[中共“骗”字诀不曾改 70年始终欺瞒中国人](https://github.com/pinhe91/dhjzx/tree/main)
