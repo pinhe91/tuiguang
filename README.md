@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[疫情“清零”和信仰“清零”](https://github.com/pinhe91/qcxe/tree/main)
+
 ### 点击阅读：[凡间异事破迷雾 苍宇圣王度红尘](https://github.com/pinhe91/zjhwz//tree/main)
 
 ### 点击阅读：[【庆祝513】25年前我与死神擦肩而过](https://github.com/pinhe91/xdfsq/tree/main)
