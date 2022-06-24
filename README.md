@@ -113,7 +113,7 @@
 
 ## 明慧周报：中国版（第九零七期）
 
-### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2022/06/24/mhzb_907_pdf.pdf
+### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2022/06/24/mhzb_907_pdf.pdf （需翻牆）
 
 ## 了解真相资讯（國外網站需翻牆）
 
