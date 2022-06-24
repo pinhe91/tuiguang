@@ -111,9 +111,9 @@
 
 ### 三退聲明：[我要做三退](https://tuidang.epochtimes.com/)
 
-## 明慧周报：中国版（第九零六期）
+## 明慧周报：中国版（第九零七期）
 
-### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2022/06/17/mhzb_906_pdf.pdf
+### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2022/06/24/mhzb_907_pdf.pdf
 
 ## 了解真相资讯（國外網站需翻牆）
 
