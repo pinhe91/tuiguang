@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[中小学“毒教材”知多少？](https://github.com/pinhe91/zxxdhzds/tree/main)
+
 ### 点击阅读：[疫情“清零”和信仰“清零”](https://github.com/pinhe91/qcxe/tree/main)
 
 ### 点击阅读：[凡间异事破迷雾 苍宇圣王度红尘](https://github.com/pinhe91/zjhwz//tree/main)
