@@ -4,8 +4,6 @@
 
 ![IMG_20220405_205517_812](https://user-images.githubusercontent.com/79625284/175900655-84e32d58-cf4b-427b-88f5-a1ef0107b35d.jpg)
 
-![FWKks4gaMAEHh_D](https://user-images.githubusercontent.com/79625284/175806899-ea8acccd-1f16-4cda-ad17-19fbe2ede52f.png)
-
 ## Visit English website
 
 ### THE FPOCH TIMES：https://www.theepochtimes.com/
