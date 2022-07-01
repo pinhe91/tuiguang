@@ -14,6 +14,8 @@
 
 ### 点击阅读：[长春插播：用真相点燃心灯](https://github.com/pinhe91/cczx/tree/main)
 
+### 点击阅读：[基督教的神点悟信徒快找寻法轮功](https://github.com/pinhe91/kzflg/tree/main)
+
 ### 点击阅读：[到底谁养活了谁？](https://github.com/pinhe91/tdbpa/tree/main)
 
 ### 点击阅读：[中小学“毒教材”知多少？](https://github.com/pinhe91/zxxdhzds/tree/main)
