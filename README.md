@@ -130,7 +130,7 @@
 
 原文 https://www.minghui.org/mh/articles/2022/7/6/医生说活不过三月的表弟健康的活了十年了-445751.html
 
-### 三退聲明：[我要做三退](https://tuidang.epochtimes.com/)
+### 三退聲明：[我要做三退](https://tuidang.ddns.net/)
 
 ## 明慧周报：中国版（第九零八期）
 
