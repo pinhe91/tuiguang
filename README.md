@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[防疫“错施”不断 民众绝望选“三退”](https://github.com/pinhe91/shstz/tree/main)
+
 ### 点击阅读：[六月的天灾人祸，警醒中国人自救迫在眉睫](https://github.com/pinhe91/tzzj/tree/main)
 
 ### 点击阅读：[长春插播：用真相点燃心灯](https://github.com/pinhe91/cczx/tree/main)
