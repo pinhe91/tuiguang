@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[诚念“法轮大法好”　邻居妹子骨癌痊愈](https://github.com/pinhe91/cndfhdjl/tree/main)
+
 ### 点击阅读：[防疫“错施”不断 民众绝望选“三退”](https://github.com/pinhe91/shstz/tree/main)
 
 ### 点击阅读：[六月的天灾人祸，警醒中国人自救迫在眉睫](https://github.com/pinhe91/tzzj/tree/main)
