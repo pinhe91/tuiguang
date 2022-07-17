@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[反迫害23周年 旧金山法轮功学员大游行](https://github.com/pinhe91/qelfph/tree/main)
+
 ### 点击阅读：[诚念“法轮大法好”　邻居妹子骨癌痊愈](https://github.com/pinhe91/cndfhdjl/tree/main)
 
 ### 点击阅读：[防疫“错施”不断 民众绝望选“三退”](https://github.com/pinhe91/shstz/tree/main)
