@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[维权人士见证中共酷刑迫害法轮功学员](https://github.com/pinhe91/wqrsjzflgxy/tree/main)
+
 ### 点击阅读：[【征文选登】别说法轮功与己无关](https://github.com/pinhe91/flgynyg/tree/main)
 
 ### 点击阅读：[反迫害23周年 旧金山法轮功学员大游行](https://github.com/pinhe91/qelfph/tree/main)
