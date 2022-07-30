@@ -14,6 +14,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[“我们全家都急着找人帮三退”](https://github.com/pinhe91/kstbpa/tree/main)
+
 ### 点击阅读：[新学员：三阴乳腺癌五个月痊愈](https://github.com/pinhe91/ffjzs/tree/main)
 
 ### 点击阅读：[维权人士见证中共酷刑迫害法轮功学员](https://github.com/pinhe91/wqrsjzflgxy/tree/main)
