@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[纽约集会　庆祝四亿中国人三退](https://github.com/pinhe91/tpsyrst/tree/main)
+
 ### 点击阅读：[“我们全家都急着找人帮三退”](https://github.com/pinhe91/kstbpa/tree/main)
 
 ### 点击阅读：[新学员：三阴乳腺癌五个月痊愈](https://github.com/pinhe91/ffjzs/tree/main)
@@ -198,9 +200,9 @@
 
 ### 三退聲明：[我要做三退](https://tuidang.ddns.net/)
 
-## 明慧周报：中国版（第九一二期）
+## 明慧周报：中国版（第九一三期）
 
-### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2022/07/29/mhzb_912_pdf.pdf （需翻牆）
+### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2022/08/05/mhzb_913_pdf.pdf （需翻牆）
 
 ## 了解真相资讯（國外網站需翻牆）
 
