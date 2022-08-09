@@ -191,7 +191,7 @@
 刑庭庭长：龚雯
 承办法官：钱丽娜
 
-原文 https://www.minghui.org/mh/articles/曾陷冤狱11年半-上海68岁罗伟又遭枉判-447443.html
+原文 https://www.minghui.org/mh/articles/2022/8/9/曾陷冤狱11年半-上海68岁罗伟又遭枉判-447443.html
 
 ### 三退聲明：[我要做三退](https://tuidang.ddns.net/)
 
