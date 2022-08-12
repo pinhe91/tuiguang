@@ -14,6 +14,8 @@
 
 ### 点击阅读：[【事实还原】法轮功在中国一直是合法的](https://github.com/pinhe91/flgzzgshfd/tree/main)
 
+### 点击阅读：[写给大庆市中级法院人员的劝善信](https://github.com/pinhe91/zxxjr/tree/main)
+
 ### 点击阅读：[纽约集会　庆祝四亿中国人三退](https://github.com/pinhe91/tpsyrst/tree/main)
 
 ### 点击阅读：[“我们全家都急着找人帮三退”](https://github.com/pinhe91/kstbpa/tree/main)
