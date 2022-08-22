@@ -204,6 +204,10 @@
 
 天网恢恢、疏而不漏，善恶有报。郭国明这个笑面杀人魔鬼最终成为中共的“替死鬼”，为中共陪葬。
 
+![image](https://user-images.githubusercontent.com/79625284/185887251-310105ca-2de1-4ee7-8c55-397474aedfa1.png)
+
+郭国明
+
 原文 https://www.minghui.org/mh/articles/2022/8/22/遭恶报-河南焦作市郭国明突然丧命-447915.html
 
 ### 三退聲明：[我要做三退](https://tuidang.ddns.net/)
