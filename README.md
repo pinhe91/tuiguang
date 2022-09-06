@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[【征文选登】为什么说“天安门自焚”是世纪骗局](https://github.com/pinhe91/tamswa/tree/main)
+
 ### 点击阅读：[【事实还原】法轮功在中国一直是合法的](https://github.com/pinhe91/flgzzgshfd/tree/main)
 
 ### 点击阅读：[写给大庆市中级法院人员的劝善信](https://github.com/pinhe91/zxxjr/tree/main)
