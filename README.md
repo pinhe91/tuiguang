@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[中国三十省、直辖市大法弟子敬拜师尊](https://greetings.minghui.org/mh/articles/2022/9/9/%E4%B8%AD%E5%9B%BD%E4%B8%89%E5%8D%81%E7%9C%81%E3%80%81%E7%9B%B4%E8%BE%96%E5%B8%82%E5%A4%A7%E6%B3%95%E5%BC%9F%E5%AD%90%E6%95%AC%E6%8B%9C%E5%B8%88%E5%B0%8A-449153.html)（翻牆看）
+
 ### 点击阅读：[【征文选登】为什么说“天安门自焚”是世纪骗局](https://github.com/pinhe91/tamswa/tree/main)
 
 ### 点击阅读：[【事实还原】法轮功在中国一直是合法的](https://github.com/pinhe91/flgzzgshfd/tree/main)
