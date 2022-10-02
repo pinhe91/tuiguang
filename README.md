@@ -203,7 +203,7 @@
 
 善恶有报，在未来法制昌明之时，所有参与迫害法轮功学员的人都面临未来正义法庭审判和终身追责。
 
-原文 https://www.minghui.org/mh/articles/2022/10/1/念法轮大法好-危急中保命-450280.html
+原文 https://www.minghui.org/mh/articles/2022/10/2/借口二十大-多省政法委操控不法人员迫害法轮功-450318.html
 
 ### 三退聲明：[我要做三退](https://tuidang.ddns.net/)
 
