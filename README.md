@@ -156,7 +156,7 @@
 
 ## 明慧周报：中国版（第九二四期）
 
-### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2022/10/21/mhzb_924_pdf.pdf（需翻牆）
+### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2022/10/21/mhzb_924_pdf（需翻牆）
 
 ## 了解真相资讯（國外網站需翻牆）
 
