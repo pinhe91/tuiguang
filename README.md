@@ -2,7 +2,7 @@
 
 ## 圖片真相（會更新）
 
-![FXsWoFWacAAyfqP](https://user-images.githubusercontent.com/79625284/200558058-b7bd10aa-6e64-48b3-be33-b5a597b90673.png)
+![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/201307186-c56c0865-2173-4240-bc28-fee4b94ec45d.jpg)
 
 ## Visit English website
 
@@ -158,9 +158,9 @@
 
 ### 三退聲明：[我要做三退](https://tuidang.ddns.net/)
 
-## 明慧周报：中国版（第九二六期）
+## 明慧周报：中国版（第九二七期）
 
-### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2022/11/04/mhzb_926_pdf.pdf  （需翻墙）
+### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2022/11/11/mhzb_927_pdf.pdf  （需翻墙）
 
 ## 了解真相资讯（國外網站需翻牆）
 
