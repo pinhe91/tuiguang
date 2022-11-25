@@ -162,9 +162,9 @@
 
 ### 三退聲明：[我要做三退](https://tuidang.ddns.net/)
 
-## 明慧周报：中国版（第九二八期）
+## 明慧周报：中国版（第九二九期）
 
-### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2022/11/18/mhzb_928_pdf.pdf （需翻墙）
+### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2022/11/25/mhzb_929_pdf.pdf （需翻墙）
 
 ## 了解真相资讯（國外網站需翻牆）
 
