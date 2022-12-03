@@ -12,6 +12,8 @@
 
 ## 真相文章特选
 
+### 点击阅读：[为什么说江泽民是败坏中国人道德的祸首？](https://github.com/pinhe91/hsfbm/blob/main/README.md)
+
 ### 点击阅读：[【征文选登】为什么说“天安门自焚”是世纪骗局](https://github.com/pinhe91/tamswa/tree/main)
 
 ### 点击阅读：[【事实还原】法轮功在中国一直是合法的](https://github.com/pinhe91/flgzzgshfd/tree/main)
@@ -81,8 +83,6 @@
 ### 点击阅读：[诚念九字真言　哥哥克服了抑郁症](https://github.com/pinhe91/jzzyh/tree/main)
 
 ### 点击阅读：[保护大法弟子得福报](https://github.com/pinhe91/zxdzs/tree/main)
-
-### 点击阅读：[“铁牛”还不如我这个肉身](https://github.com/pinhe91/hsfbm/tree/main)
 
 ### 点击阅读：[苍天有眼识善恶　仇视大法命归阴](https://github.com/pinhe91/chdfzeb/tree/main)
 
