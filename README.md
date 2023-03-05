@@ -1,4 +1,4 @@
-# Sammy small website
+# Sammy small website （寒梅小站）
 
 ## 翻墙后，点击下面图片链接，阅读李洪志大师面对全人类发表的《为什么会有人类》
 
