@@ -14,7 +14,7 @@
 
 ### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
 
-## 真相文章特选
+## 真相文章特选（免翻墙）
 
 ### 点击阅读：[为什么说江泽民是败坏中国人道德的祸首？](https://github.com/pinhe91/hsfbm/blob/main/README.md)
 
