@@ -6,8 +6,6 @@
 
 ## 圖片真相（會更新）
 
-![IMG_20220106_580](https://user-images.githubusercontent.com/79625284/218052854-ff30bc39-9b24-47d0-8c39-752bd5797f2e.jpg)
-
 ![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/221144642-790ddebf-ba38-474e-93a7-ff2f3f88236f.jpg)
 
 ## Visit English website
