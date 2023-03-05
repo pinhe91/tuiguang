@@ -1,5 +1,9 @@
 # Sammy small website
 
+## 翻墙后，点击下面图片链接，阅读李洪志大师面对全人类发表的《为什么会有人类》
+
+[![jw-news-banner960x150](https://user-images.githubusercontent.com/79625284/222957338-90fac75d-2b6e-4f03-be1c-c93f0d3d98ae.png)](https://www.minghui.org/mh/articles/2023/1/20/%E4%B8%BA%E4%BB%80%E4%B9%88%E4%BC%9A%E6%9C%89%E4%BA%BA%E7%B1%BB-455562.html)
+
 ## 圖片真相（會更新）
 
 ![IMG_20220106_580](https://user-images.githubusercontent.com/79625284/218052854-ff30bc39-9b24-47d0-8c39-752bd5797f2e.jpg)
