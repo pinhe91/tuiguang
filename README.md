@@ -153,7 +153,7 @@
 
 原文 https://www.minghui.org/mh/articles/2023/3/5/北京富豪听《为什么会有人类》-感觉找到了家-457420.html
 
-### 三退聲明：[我要做三退](https://tuidang.ddns.net/)
+### 三退聲明：[我要做三退](https://tuidang.ddns.net/)（需翻墙）
 
 ## 明慧周报：中国版（第九四三期）
 
