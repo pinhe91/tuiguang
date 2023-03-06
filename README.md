@@ -4,6 +4,10 @@
 
 [![jw-news-banner960x150](https://user-images.githubusercontent.com/79625284/222957338-90fac75d-2b6e-4f03-be1c-c93f0d3d98ae.png)](https://www.minghui.org/mh/articles/2023/1/20/%E4%B8%BA%E4%BB%80%E4%B9%88%E4%BC%9A%E6%9C%89%E4%BA%BA%E7%B1%BB-455562.html)
 
+## Click on the picture to read the article
+
+[![jw-feature-humankind-3](https://user-images.githubusercontent.com/79625284/223070346-e1b6f2f8-5334-4ebf-bded-8dd491337ed7.jpg)](http://en.minghui.org/html/articles/2023/1/21/206699.html)
+
 ## 圖片真相（會更新）
 
 ![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/221144642-790ddebf-ba38-474e-93a7-ff2f3f88236f.jpg)
