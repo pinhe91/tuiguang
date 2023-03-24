@@ -10,7 +10,7 @@
 
 ## 圖片真相（會更新）
 
-![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/221144642-790ddebf-ba38-474e-93a7-ff2f3f88236f.jpg)
+![FT0YxWgaQAEvdne](https://user-images.githubusercontent.com/79625284/227457242-629c834b-599b-4960-afba-8a1454206ada.png)
 
 ## Visit English website
 
