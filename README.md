@@ -10,6 +10,8 @@
 
 ## 圖片真相（會更新）
 
+![image](https://user-images.githubusercontent.com/79625284/237048389-e12a05e1-d3b9-4340-a163-40372c25d8a7.png)
+
 ![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/234532576-7fecf3ac-2175-463a-b2bc-8f94e903c8d3.jpg)
 
 ![FbpuM2TaIAERBNf](https://user-images.githubusercontent.com/79625284/229443621-464732d6-3e59-48a3-9372-c632abcc64b0.png)
