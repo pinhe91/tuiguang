@@ -14,7 +14,7 @@
 
 ![FbpuM2TaIAERBNf](https://user-images.githubusercontent.com/79625284/229443621-464732d6-3e59-48a3-9372-c632abcc64b0.png)
 
-## Visit English website （国内翻墙看）
+## Visit English website （国内翻墙看英文网站）
 
 ### [3 Musketeers（三剑客）](https://www.youtube.com/@3MusketeersUS/videos)
 
