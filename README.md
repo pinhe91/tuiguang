@@ -16,11 +16,11 @@
 
 ## Visit English website （国内翻墙看英文网站）
 
-### click to watch（点击观看）： [3 Musketeers（三剑客）](https://www.youtube.com/@3MusketeersUS/videos)
-
 ### THE FPOCH TIMES：https://www.theepochtimes.com/
 
 ### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
+
+### click to watch（点击观看）： [3 Musketeers（三剑客）](https://www.youtube.com/@3MusketeersUS/videos)
 
 ## 真相文章特选（免翻墙）
 
