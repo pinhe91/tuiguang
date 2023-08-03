@@ -14,6 +14,8 @@
 
 ![FbpuM2TaIAERBNf](https://user-images.githubusercontent.com/79625284/229443621-464732d6-3e59-48a3-9372-c632abcc64b0.png)
 
+![Fii7QypaEAA6B4y](https://github.com/pinhe91/tuiguang/assets/79625284/4dbef490-bf97-4de5-b398-add4de8ee456)
+
 ## Visit English website （国内翻墙看英文网站）
 
 ### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
