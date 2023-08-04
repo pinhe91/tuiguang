@@ -24,7 +24,7 @@
 
 ### THE FPOCH TIMES：https://www.theepochtimes.com/
 
-### click to watch（点击观看）： [3 Musketeers（三剑客）](https://www.youtube.com/@3MusketeersUS/videos)
+### click to watch（点击观看）： [3 Musketeers](https://www.youtube.com/@3MusketeersUSA/videos)
 
 ## 真相文章特选（免翻墙）
 
