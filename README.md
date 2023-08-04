@@ -16,6 +16,8 @@
 
 ![Fii7QypaEAA6B4y](https://github.com/pinhe91/tuiguang/assets/79625284/4dbef490-bf97-4de5-b398-add4de8ee456)
 
+### 三退聲明：[我要做三退](https://tuidang.ddns.net/)（需翻墙）
+
 ## Visit English website （国内翻墙看英文网站）
 
 ### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
@@ -139,8 +141,6 @@
 ### 点击阅读：[人类的大劫难由中共迫害法轮功而起](https://github.com/pinhe91/jcxw4/tree/main) 
 
 ### 点击阅读：[与司灾神的对话：数十种灾难和大法弟子的职责](https://github.com/pinhe91/jcxw1/tree/main) 
-
-### 三退聲明：[我要做三退](https://tuidang.ddns.net/)（需翻墙）
 
 ## 明慧周报：中国版（第九六四期）
 
