@@ -16,6 +16,8 @@
 
 ![Fii7QypaEAA6B4y](https://github.com/pinhe91/tuiguang/assets/79625284/4dbef490-bf97-4de5-b398-add4de8ee456)
 
+![image](https://github.com/pinhe91/tuiguang/assets/79625284/9487f607-f098-4568-a06d-a6219f430ddd)
+
 ### 三退聲明：[我要做三退](https://tuidang.ddns.net/)（需翻墙）
 
 ## Visit English website （国内翻墙看英文网站）
