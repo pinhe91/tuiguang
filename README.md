@@ -164,6 +164,8 @@
 
 ### 正见网：http://www.zhengjian.org/
 
+### 追查迫害法輪功國際組織：http://www.zhuichaguoji.org/
+
 ### 大纪元新闻网：https://www.epochtimes.com/
 
 ### 新唐人電視台：https://www.ntdtv.com/b5/
@@ -173,7 +175,5 @@
 ### 希望之聲：https://www.soundofhope.org/
 
 ### 看中國：https://www.secretchina.com/
-
-### 追查迫害法輪功國際組織：http://www.zhuichaguoji.org/
 
 ## [返回顶部](https://git.io/Js3EY)
