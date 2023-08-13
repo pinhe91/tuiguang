@@ -16,7 +16,9 @@
 
 ![Fii7QypaEAA6B4y](https://github.com/pinhe91/tuiguang/assets/79625284/4dbef490-bf97-4de5-b398-add4de8ee456)
 
-![image](https://github.com/pinhe91/tuiguang/assets/79625284/8c58b805-ea6c-4c2e-a797-827414a7b9ed)
+![image](https://github.com/pinhe91/tuiguang/assets/79625284/07689d2e-b32b-4ef9-ac9a-a0bcb6c2d66d)
+
+![image](https://github.com/pinhe91/tuiguang/assets/79625284/d0ee57ec-0dca-4b32-b470-11a9fbb132e0)
 
 ![image](https://github.com/pinhe91/tuiguang/assets/79625284/9487f607-f098-4568-a06d-a6219f430ddd)
 
