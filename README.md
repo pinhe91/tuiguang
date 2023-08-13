@@ -8,7 +8,7 @@
 
 [![jw-feature-humankind-3](https://user-images.githubusercontent.com/79625284/223070346-e1b6f2f8-5334-4ebf-bded-8dd491337ed7.jpg)](http://en.minghui.org/html/articles/2023/1/21/206699.html)
 
-## 圖片真相（會更新）
+## 圖片真相
 
 ![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/234532576-7fecf3ac-2175-463a-b2bc-8f94e903c8d3.jpg)
 
