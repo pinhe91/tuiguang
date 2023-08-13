@@ -16,6 +16,8 @@
 
 ![Fii7QypaEAA6B4y](https://github.com/pinhe91/tuiguang/assets/79625284/4dbef490-bf97-4de5-b398-add4de8ee456)
 
+![image](https://github.com/pinhe91/tuiguang/assets/79625284/8c58b805-ea6c-4c2e-a797-827414a7b9ed)
+
 ![image](https://github.com/pinhe91/tuiguang/assets/79625284/9487f607-f098-4568-a06d-a6219f430ddd)
 
 ![image](https://github.com/pinhe91/tuiguang/assets/79625284/da428b92-61fd-49ea-b902-95431a5177e4)
