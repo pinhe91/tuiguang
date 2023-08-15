@@ -35,6 +35,8 @@
 
 ## Visit English website （国内翻墙看英文网站）
 
+FALUN DAFA ：https://t.co/csxkTC3eYM
+
 ### FAKUN DAFA 明慧網 MING HUI.OGR: http://en.minghui.org/
 
 ### THE FPOCH TIMES：https://www.theepochtimes.com/
