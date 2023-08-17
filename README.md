@@ -16,6 +16,8 @@
 
 ![image](https://github.com/pinhe91/tuiguang/assets/79625284/d7bc4449-d620-4d08-9243-921eb4954cd8)
 
+![image](https://github.com/pinhe91/tuiguang/assets/79625284/6988c75a-e4a8-43b8-aca0-3d8ce56bbe43)
+
 ### 三退聲明
 [我要做三退](https://td.a1992.store)（免翻墙）
 
