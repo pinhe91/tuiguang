@@ -17,7 +17,7 @@
 ![image](https://github.com/pinhe91/tuiguang/assets/79625284/5b76fb16-8b5e-407a-a7fc-4090bee5e864)
 
 ### 三退聲明
-[我要做三退](https://td.a1992.store)（免翻墙）
+[我要做三退](https://td.b1992.store)（免翻墙）
 
 [我要做三退](https://tuidang.ddns.net/)（需翻墙）
 
