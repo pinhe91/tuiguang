@@ -14,9 +14,7 @@
 
 ![FbpuM2TaIAERBNf](https://user-images.githubusercontent.com/79625284/229443621-464732d6-3e59-48a3-9372-c632abcc64b0.png)
 
-![image](https://github.com/pinhe91/tuiguang/assets/79625284/5b76fb16-8b5e-407a-a7fc-4090bee5e864)
-
-![image](https://github.com/pinhe91/tuiguang/assets/79625284/39be4361-4b94-4c96-a1ed-632ded3281d0)
+![image](https://github.com/pinhe91/tuiguang/assets/79625284/e3edd74d-902c-4120-83b6-6c1b1aa6d8b5)
 
 ### 三退聲明
 [我要做三退](https://td.b1992.store)（免翻墙）
