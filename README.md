@@ -14,10 +14,6 @@
 
 ![FbpuM2TaIAERBNf](https://user-images.githubusercontent.com/79625284/229443621-464732d6-3e59-48a3-9372-c632abcc64b0.png)
 
-![image](https://github.com/pinhe91/tuiguang/assets/79625284/1004e65f-843c-4404-8a34-8f0d1b9cf9e6)
-
-![image](https://github.com/pinhe91/tuiguang/assets/79625284/d54946e7-e0b6-4ad9-8336-69144d0a43d7)
-
 ![image](https://github.com/pinhe91/tuiguang/assets/79625284/b66767e7-8fa8-41db-a6aa-ffb72ae7c7b3)
 
 ### 三退聲明
