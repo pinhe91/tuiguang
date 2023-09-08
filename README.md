@@ -10,6 +10,8 @@
 
 ## 圖片真相
 
+![F5gL8IibsAAIRqS](https://github.com/pinhe91/tuiguang/assets/79625284/05d0e2d2-ef3c-4f7f-a2eb-76a96b6a1031)
+
 ![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/234532576-7fecf3ac-2175-463a-b2bc-8f94e903c8d3.jpg)
 
 ![FbpuM2TaIAERBNf](https://user-images.githubusercontent.com/79625284/229443621-464732d6-3e59-48a3-9372-c632abcc64b0.png)
