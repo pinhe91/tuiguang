@@ -19,7 +19,7 @@
 ![262913837-b66767e7-8fa8-41db-a6aa-ffb72ae7c7b3](https://github.com/pinhe91/tuiguang/assets/79625284/55de106e-310e-4f5d-a408-998ad036282c)
 
 ### 三退聲明
-[我要做三退](https://td.b425.online)（免翻墙）
+[我要做三退](https://td.b513.store)（免翻墙）
 
 [我要做三退](https://tuidang.ddns.net/)（需翻墙）
 
@@ -149,9 +149,9 @@
 
 ### 点击阅读：[与司灾神的对话：数十种灾难和大法弟子的职责](https://github.com/pinhe91/jcxw1/tree/main) 
 
-## 明慧周报：中国版（第九七零期）
+## 明慧周报：中国版（第九七一期）
 
-### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2023/09/08/mhzb_970_pdf.pdf （需翻墙）
+### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2023/09/15/mhzb_971_pdf.pdf （需翻墙）
 
 ## 了解真相资讯（國外網站需翻牆）
 
