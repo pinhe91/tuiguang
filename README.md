@@ -16,13 +16,13 @@
 
 ![Fl66YyJaEAEnvqj](https://github.com/pinhe91/tuiguang/assets/79625284/7f02dca3-2014-4f4d-a8c4-6b58e5de85c9)
 
-![378118283_343484248035155_4484164131317876745_n](https://github.com/pinhe91/tuiguang/assets/79625284/9d617ed4-41d9-4eae-95a6-213d402bbc19)
-
-![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/234532576-7fecf3ac-2175-463a-b2bc-8f94e903c8d3.jpg)
-
 ![FbpuM2TaIAERBNf](https://user-images.githubusercontent.com/79625284/229443621-464732d6-3e59-48a3-9372-c632abcc64b0.png)
 
 ![262913837-b66767e7-8fa8-41db-a6aa-ffb72ae7c7b3](https://github.com/pinhe91/tuiguang/assets/79625284/55de106e-310e-4f5d-a408-998ad036282c)
+
+![378118283_343484248035155_4484164131317876745_n](https://github.com/pinhe91/tuiguang/assets/79625284/9d617ed4-41d9-4eae-95a6-213d402bbc19)
+
+![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/234532576-7fecf3ac-2175-463a-b2bc-8f94e903c8d3.jpg)
 
 ### 三退聲明
 [我要做三退](https://td.b513.store)（免翻墙）
