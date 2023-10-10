@@ -1,26 +1,6 @@
 # Sammy small website （寒梅小站）
 
-## 翻墙后，点击下面图片链接，阅读李洪志大师面对全人类发表的《为什么会有人类》
-
-[![jw-news-banner960x150](https://user-images.githubusercontent.com/79625284/222957338-90fac75d-2b6e-4f03-be1c-c93f0d3d98ae.png)](https://www.minghui.org/mh/articles/2023/1/20/%E4%B8%BA%E4%BB%80%E4%B9%88%E4%BC%9A%E6%9C%89%E4%BA%BA%E7%B1%BB-455562.html)
-
-## Click on the picture to read the article
-
-[![jw-feature-humankind-3](https://user-images.githubusercontent.com/79625284/223070346-e1b6f2f8-5334-4ebf-bded-8dd491337ed7.jpg)](http://en.minghui.org/html/articles/2023/1/21/206699.html)
-
 ## 圖片真相
-
-![369899772_9810143475726312_7914569738308111041_n](https://github.com/pinhe91/tuiguang/assets/79625284/0fbc258c-4f9a-40d3-b81c-ddcb83a8d67a)
-
-![F5gL8IibsAAIRqS](https://github.com/pinhe91/tuiguang/assets/79625284/05d0e2d2-ef3c-4f7f-a2eb-76a96b6a1031)
-
-![Fl66YyJaEAEnvqj](https://github.com/pinhe91/tuiguang/assets/79625284/7f02dca3-2014-4f4d-a8c4-6b58e5de85c9)
-
-![378118283_343484248035155_4484164131317876745_n](https://github.com/pinhe91/tuiguang/assets/79625284/9d617ed4-41d9-4eae-95a6-213d402bbc19)
-
-![262913837-b66767e7-8fa8-41db-a6aa-ffb72ae7c7b3](https://github.com/pinhe91/tuiguang/assets/79625284/55de106e-310e-4f5d-a408-998ad036282c)
-
-![FbpuM2TaIAERBNf](https://user-images.githubusercontent.com/79625284/229443621-464732d6-3e59-48a3-9372-c632abcc64b0.png)
 
 ![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/234532576-7fecf3ac-2175-463a-b2bc-8f94e903c8d3.jpg)
 
