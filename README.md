@@ -14,10 +14,10 @@
 
 ![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/234532576-7fecf3ac-2175-463a-b2bc-8f94e903c8d3.jpg)
 
-### 三退聲明
-[我要做三退](https://td.b999.store)（免翻墙）
+## 三退聲明
+### [我要做三退](https://td.b999.store)（免翻墙）
 
-[我要做三退](https://tuidang.ddns.net/)（需翻墙）
+### [我要做三退](https://tuidang.ddns.net/)（需翻墙）
 
 ## Visit English website （国内翻墙看英文网站）
 
