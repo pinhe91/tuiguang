@@ -14,6 +14,8 @@
 
 ![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/234532576-7fecf3ac-2175-463a-b2bc-8f94e903c8d3.jpg)
 
+### 点击阅读：[瘟疫带来历史巨变 上天在判定每个人去留](https://github.com/pinhe91/jcxw2/blob/main/README.md)
+
 ## 三退聲明
 ### [我要做三退](https://td.b999.store)（免翻墙）
 
