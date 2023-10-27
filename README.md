@@ -147,9 +147,9 @@
 
 ### 点击阅读：[与司灾神的对话：数十种灾难和大法弟子的职责](https://github.com/pinhe91/jcxw1/tree/main) 
 
-## 明慧周报：中国版（第九七六期）
+## 明慧周报：中国版（第九七七期）
 
-### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2023/10/20/mhzb_976_pdf.pdf （需翻墙）
+### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2023/10/27/mhzb_977_pdf.pdf （需翻墙）
 
 ## 了解真相资讯（國外網站需翻牆）
 
