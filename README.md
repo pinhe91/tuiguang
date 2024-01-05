@@ -1,7 +1,5 @@
 # Sammy small website （寒梅小站）
 
-![image](https://github.com/pinhe91/tuiguang/assets/79625284/81429a1f-9185-4013-bf46-61dbb10c6c1e)
-
 ## 推荐两款免费免翻实用软件（海内外用户都可使用）
 
 ### （一）神州明见TV，报道真实的海内外新闻影视等资讯，下载解压安装后即可使用，自动翻墙，有网的地方就能安全使用。（可安装在安卓手机和网络电视机的安卓系统的应用中或带安卓系统的网络机顶盒的电视机中使用，程序适用系统：安卓4.1及以上）
@@ -151,9 +149,9 @@
 
 ### 点击阅读：[与司灾神的对话：数十种灾难和大法弟子的职责](https://github.com/pinhe91/jcxw1/tree/main) 
 
-## 明慧周报：中国版（第九八六期）
+## 明慧周报：中国版（第九八七期）
 
-### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2023/12/29/mhzb_986_pdf.pdf （需翻墙）
+### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2024/01/05/mhzb_987_pdf.pdf （需翻墙）
 
 ## 了解真相资讯（國外網站需翻牆）
 
