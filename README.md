@@ -19,7 +19,6 @@
 ### 点击阅读：[瘟疫带来历史巨变 上天在判定每个人去留](https://github.com/pinhe91/jcxw2/blob/main/README.md)
 
 ## 三退聲明
-### [我要做三退](https://d2xwa1o290d40i.cloudfront.net)（免翻墙）
 
 ### [我要做三退](https://tuidang.ddns.net/)（需翻墙）
 
