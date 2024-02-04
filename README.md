@@ -18,6 +18,8 @@
 
 ### 点击阅读：[瘟疫带来历史巨变 上天在判定每个人去留](https://github.com/pinhe91/jcxw2/blob/main/README.md)
 
+### 點擊觀看：[王宇空間](https://www.ganjingworld.com/zh-TW/channel/1f3e940gu885MtdHah1ffvqwE10r0c)
+
 ## 三退聲明
 
 ### [我要做三退](https://tuidang.ddns.net/)（需翻墙）
@@ -30,7 +32,7 @@
 
 ### THE FPOCH TIMES：https://www.theepochtimes.com/
 
-### click to watch（点击观看）： [3 Musketeers](https://www.youtube.com/@3MusketeersUSA/videos)
+### click to watch（点击观看）： [3 Musketeers](https://www.ganjingworld.com/s/QEVvxgJoDw)
 
 ## 真相文章特选（免翻墙）
 
@@ -175,7 +177,5 @@
 ### 希望之聲：https://www.soundofhope.org/
 
 ### 看中國：https://www.secretchina.com/
-
-### 點擊觀看：[油管視頻](https://www.youtube.com/@user-sp4bq2km1w/featured)
 
 ## [返回顶部](https://git.io/Js3EY)
