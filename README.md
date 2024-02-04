@@ -18,7 +18,7 @@
 
 ### 点击阅读：[瘟疫带来历史巨变 上天在判定每个人去留](https://github.com/pinhe91/jcxw2/blob/main/README.md)
 
-### 點擊觀看：[王宇空間](https://www.ganjingworld.com/zh-TW/channel/1f3e940gu885MtdHah1ffvqwE10r0c)
+### 點擊觀看：[王宇空間](https://www.ganjingworld.com/zh-TW/channel/1f3e940gu885MtdHah1ffvqwE10r0c) （需翻墙）
 
 ## 三退聲明
 
