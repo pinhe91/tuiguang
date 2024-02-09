@@ -170,6 +170,8 @@
 
 ### 追查迫害法輪功國際組織：http://www.zhuichaguoji.org/
 
+### 乾淨世界：https://www.ganjingworld.com/zh-CN
+
 ### 大纪元新闻网：https://www.epochtimes.com/
 
 ### 新唐人電視台：https://www.ntdtv.com/b5/
