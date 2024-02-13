@@ -1,7 +1,5 @@
 # Sammy small website （寒梅小站）
 
-![image](https://github.com/pinhe91/tuiguang/assets/79625284/0b817ae6-b1d5-4d24-8b1a-613b7b04f7ff)
-
 ## 推荐两款免费免翻实用软件（海内外用户都可使用）
 
 ### （一）神州明见TV，报道真实的海内外新闻影视等资讯，下载解压安装后即可使用，自动翻墙，有网的地方就能安全使用。（可安装在安卓手机和网络电视机的安卓系统的应用中或带安卓系统的网络机顶盒的电视机中使用，程序适用系统：安卓4.1及以上）
@@ -20,7 +18,7 @@
 
 ### 点击阅读：[瘟疫带来历史巨变 上天在判定每个人去留](https://github.com/pinhe91/jcxw2/blob/main/README.md)
 
-### 點擊觀看：[暗處一燈](https://www.ganjingworld.com/zh-TW/channel/1f3e940gu885MtdHah1ffvqwE10r0c) （需翻墙）
+### 點擊觀看：[晓莲空间](https://www.ganjingworld.com/zh-TW/channel/1ggeq8oqkrd7lNau2Iv8MS6rA1480c) （需翻墙）
 
 ## 三退聲明
 
