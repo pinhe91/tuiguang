@@ -18,8 +18,6 @@
 
 ### 点击阅读：[瘟疫带来历史巨变 上天在判定每个人去留](https://github.com/pinhe91/jcxw2/blob/main/README.md)
 
-### 點擊觀看：[晓莲空间](https://www.ganjingworld.com/zh-TW/channel/1ggeq8oqkrd7lNau2Iv8MS6rA1480c) （需翻墙）
-
 ## 三退聲明
 
 ### [我要做三退](https://tuidang.ddns.net/)（需翻墙）
