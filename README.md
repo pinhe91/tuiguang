@@ -8,6 +8,8 @@
 
 ### 点击下载：[神州明见TV_6.8.zip](https://github.com/pinhe91/tuiguang/files/13267427/TV_6.8.zip)
 
+### 点击下载：[神州明见TV_6.9.zip](https://github.com/pinhe91/tuiguang/files/14785902/TV_6.9.zip)
+
 ### （二）爱博电视PC，是台式电脑笔记本电脑的佳音，下载解压安装后自动翻墙，媒体自动连接成功后出现节目菜单，鼠标双击所选菜单即可观看新闻，电影电视等海外节目，有网的地方都能安全使用。
 
 ### 点击下载：[Green_iPPOTV.zip](https://github.com/pinhe91/tuiguang/files/12881943/Green_iPPOTV.zip)
