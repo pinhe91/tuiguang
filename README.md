@@ -18,8 +18,6 @@
 
 ![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/234532576-7fecf3ac-2175-463a-b2bc-8f94e903c8d3.jpg)
 
-![image](https://github.com/pinhe91/tuiguang/assets/79625284/62f00a63-9ac6-43f0-9976-d019938f8c4f)
-
 ### 点击阅读：[瘟疫带来历史巨变 上天在判定每个人去留](https://github.com/pinhe91/jcxw2/blob/main/README.md)
 
 ## 三退聲明
