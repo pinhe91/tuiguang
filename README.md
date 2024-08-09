@@ -152,7 +152,7 @@
 
 ## 明慧周报：中国版（第一零一七期）
 
-### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2024/08/02/mhzb_1017_pdf.pdf （需翻墙）
+### 點鏈接閱讀：https://qikan.minghui.org/mhqkpage/qikanimage/2024/08/09/mhzb_1018_pdf.pdf （需翻墙）
 
 ## 了解真相资讯（國外網站需翻牆）
 
