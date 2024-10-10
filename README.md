@@ -22,6 +22,8 @@
 
 ## 三退聲明
 
+### [我要做三退](https://s3.us-east-1.amazonaws.com/tcxs/ctd.html) （免翻墙）
+
 ### [我要做三退](https://tuidang.ddns.net/)（需翻墙）
 
 ## Visit English website （国内翻墙看英文网站）
