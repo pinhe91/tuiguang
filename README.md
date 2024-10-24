@@ -28,6 +28,8 @@
 
 ### [歡迎報名網上免費學功班](https://t.co/K1KNKj5EQS)  （需翻墙）
 
+### [Path to a Happier & Healthier You](https://www.learnfalungong.com/) 
+
 ## 授权免翻-长效网站
 
 ### 点击访问 [天潮信使](https://s3.us-east-1.amazonaws.com/xinshi/cleft.html)
