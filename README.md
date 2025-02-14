@@ -162,7 +162,7 @@
 
 ## 明慧周报：中国版（第一零四五期）
 
-### 點鏈接閱讀： https://qikan.minghui.org/mhqkpage/qikanimage/2025/02/14/mhzb_1045_pdf.pdf（需翻墙）
+### 點鏈接閱讀： https://qikan.minghui.org/mhqkpage/qikanimage/2025/02/14/mhzb_1045_pdf.pdf （需翻墙）
 
 ## 了解真相资讯（國外網站需翻牆）
 
