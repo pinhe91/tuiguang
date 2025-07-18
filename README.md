@@ -158,7 +158,7 @@
 
 ## 明慧周报：中国版（第一零六六期）
 
-### 點鏈接閱讀 https://qikan.minghui.org/mhqkpage/qikanimage/2025/07/11/mhzb_1066_pdf.pdf （需翻墙）
+### 點鏈接閱讀 https://qikan.minghui.org/mhqkpage/qikanimage/2025/07/18/mhzb_1067_pdf.pdf （需翻墙）
 
 ## 了解真相资讯（國外網站需翻牆）
 
