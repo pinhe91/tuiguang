@@ -156,10 +156,6 @@
 
 ### 点击阅读：[与司灾神的对话：数十种灾难和大法弟子的职责](https://github.com/pinhe91/jcxw1/tree/main) 
 
-## 明慧周报：中国版（第一零七九期）
-
-### 點鏈接閱讀 https://qikan.minghui.org/mhqkpage/qikanimage/2025/10/10/mhzb_1079_pdf-v2.pdf （需翻墙）
-
 ## 了解真相资讯（國外網站需翻牆）
 
 ### 免费下载电脑版自由门8.0专业版翻墙软件和无界浏览，点击下载：[自由门8.0专业版](https://github.com/user-attachments/files/15550774/fg800p.zip)
