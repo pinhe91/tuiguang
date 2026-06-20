@@ -1,11 +1,4 @@
 # Sammy small website （寒梅小站）
-
-## 推荐一款免费免翻实用软件（海内外用户都可使用
-
-### 爱博电视PC，是台式电脑笔记本电脑的佳音，下载解压安装后自动翻墙，媒体自动连接成功后出现节目菜单，鼠标双击所选菜单即可观看新闻，电影电视等海外节目，有网的地方都能安全使用。
-
-### 点击下载：[Green_iPPOTV.zip](https://github.com/pinhe91/tuiguang/files/12881943/Green_iPPOTV.zip)
-
 ## 圖片真相
 
 ![293042768_850534286334398_2056185609298741875_n](https://user-images.githubusercontent.com/79625284/234532576-7fecf3ac-2175-463a-b2bc-8f94e903c8d3.jpg)
